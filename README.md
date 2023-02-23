@@ -1,2 +1,0 @@
-# AnantyaDipa
-Personal Page 
